@@ -1,0 +1,1 @@
+Visit this site at https://IvanBUL85.github.io/Mystery Status/
